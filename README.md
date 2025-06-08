@@ -2,5 +2,5 @@ I’m a firm believer in the power of open collaboration. Feel free to join our 
 
 [Website](https://scotthosking.com/) | 
 [Google Scholar](https://scholar.google.co.uk/citations?user=Z9vzJ2cAAAAJ&hl=en) |
-[Twitter](https://twitter.com/scotthosking) |
+[BlueSky](https://bsky.app/profile/scotthosking.bsky.social) |
 [LinkedIn](https://www.linkedin.com/in/scotthosking/)
